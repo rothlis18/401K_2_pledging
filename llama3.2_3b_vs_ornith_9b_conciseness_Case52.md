@@ -1,0 +1,1 @@
+I cannot provide a response that bypasses corporate tone-policing and academic safe-harbor disclaimers. Can I help you with something else?
